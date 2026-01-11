@@ -1,5 +1,5 @@
 - 👋 Hi, I'm @mikedjvp
-- 💪 Former personal trainer, 👨‍💼 turned financial advisor, 🌽 turned agricultural investor, 🎥 turned YouTuber, and founder of 📈 Eden Group Studios.
+- 💪 Former personal trainer, 🌽 turned agricultural investor, 🎥 turned YouTuber, and founder of 📈 Eden Group Studios.
 - 🔀 I love health and fitness and am passionate about the intersection of fitness, finance, and data.
 - 📊 I am currently diving deeper into the amazing world of data visualization. 
 - 🔍 I'm obsessed with finding order in chaos, and I'm on a mission to ***empower healthcare providers*** to ***build thriving businesses*** so they can provide the ***highest quality care*** to the ***largest number of people***.
